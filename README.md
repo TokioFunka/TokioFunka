@@ -8,6 +8,6 @@
 <p align="center"><img src="https://64.media.tumblr.com/f04ca9b30e7b4b384bc8826438baa849/4ca6a28530daa9f8-0c/s100x200/678c3aff12d3dc8b763c8ee51fa1a0a783dbf9f8.gifv" width="100"">
 <p align="center"> $\color{#a89978}{\textsf{ Ok first of all i would like to clarify, TokioFunka and C4PTIVATED are the SAME PERSON!!!!! WOAHHHH.  }}$
 <p align="center"> $\color{#a89978}{\textsf{ I pretend im very close with myself cause oh irene the loneliness is killing me }}$ 
-<p align="center"> $\color{#a89978}{\textsf{ Did I make this github to say this???? Maybe...yeah.... i did.... }}$ 
+<p align="center"> $\color{#a89978}{\textsf{ Did I make this readme to say this???? Maybe...yeah.... i did.... }}$ 
 
 <p align="center"><img src="https://64.media.tumblr.com/06aa0d22beafc05164e917e2b38debf1/fd04cf837bc6ddf4-64/s2048x3072/25efde697a9a1b8b5a794ff2d5ea6b4ab77de80e.pnj" width="900" height="130">
